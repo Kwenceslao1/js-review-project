@@ -1,1 +1,0 @@
-Project Kent S. Wenceslao
